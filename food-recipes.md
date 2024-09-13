@@ -62,6 +62,7 @@ Ingredients:
 - Salt and pepper to taste
 - 2 cups breadsticks
 - 1 jar (24 oz) spaghetti sauce
+- 1 cup of ghost pepper
 
 Instructions:
 1. Cook spaghetti according to package instructions.
